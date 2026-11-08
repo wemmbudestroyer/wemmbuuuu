@@ -34,7 +34,7 @@
    
    ੭﹕﹒  One thing I WISH. for people to understand me, i wish people would get to know the REAL ME. but no one reaches to that point. i swear im really hyper and fun!!. and ONE MORE LAST THING!, i hope that people understand when i meet new people, i get introverted at the start then at the end extroverted. But no one would do all that and no would spend their time doing that!, but its okay ! they have a life.
    
-   ੭﹕﹒ My favorite people are Art,Leafy,Ryu,Fen,Fizzy,Bowtie,Pineapple,Pixxie,Eli,Celestine,Alyz,Chlorineee,Max,
+   ੭﹕﹒ My favorite people are Art,Leafy,Ryu,Fen,Fizzy,Bowtie,Pineapple,Pixxie,Eli,Celestine,Alyz,Chlorineee,Max,ares,kuro
    
    " SECOND, FAVORITE FOODS & MUSIC
    
