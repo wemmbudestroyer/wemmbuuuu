@@ -15,9 +15,11 @@
 
   i have attachment problems! , please dont play with my feelings.
 
-  as i said i am a people pleaser, i dont know why. i just dont want people to hate me
+  as i said i am a people pleaser, i dont know why, i just dont want people to hate me
 
-  i also have jealousy issues &depression
+  I have bpd and VERY bad mood swings
+
+  i also have angerjealousy issues &depression
 
   LETSS CHANGE THE TOPIC!
 
@@ -26,7 +28,7 @@
 
    " FIRST, FAVORITE THINGS /THINGS ABOUT PEOPLE
    
-   ੭﹕﹒  I **REALLY** like when people gift me things without me randomly!!, like food,handmade things ( I LOVE HANDMADE THINGS I SWEAR I WILL. I WILL. PUT IT ON MY WALL/SHELF/ARMS IM SERIOUS )
+   ੭﹕﹒  I **REALLY** like when people gift me things without me knowing randomly!!, like food,handmade things ( I LOVE HANDMADE THINGS I SWEAR I WILL. I WILL. PUT IT ON MY WALL/SHELF IM SERIOUS )
    
    ੭﹕﹒  I love when people SPOIL ME!, WHO WOULDNT LIKE GETTING SPOILED??
    
@@ -34,7 +36,9 @@
    
    ੭﹕﹒  One thing I WISH. for people to understand me, i wish people would get to know the REAL ME. but no one reaches to that point. i swear im really hyper and fun!!. and ONE MORE LAST THING!, i hope that people understand when i meet new people, i get introverted at the start then at the end extroverted. But no one would do all that and no would spend their time doing that!, but its okay ! they have a life.
    
-   ੭﹕﹒ My favorite people are Art,Leafy,Ryu,Fen,Fizzy,Bowtie,Pineapple,Pixxie,Eli,Celestine,Alyz,Chlorineee,Max,ares,kuro
+   ੭﹕﹒ My favorite people are Art,Leafy,Ryu,Fen,Fizzy,Bowtie,Pineapple,Pixxie,Eli,Celestine,Alyz,Chlorineee,Max,ares,kuro, etc!!!!! 
+
+   HM : NCP!!! 
    
    " SECOND, FAVORITE FOODS & MUSIC
    
